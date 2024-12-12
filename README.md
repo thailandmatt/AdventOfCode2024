@@ -7,3 +7,4 @@
 - Day 5 - 8:00 / 6:50 for a total of 14:50
 - Day 6 - 15:10 / overnight
 - Day 7 - about 4:00 / 7:00
+- Day 8 - about 9:00 / 5:00
