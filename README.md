@@ -6,3 +6,4 @@
 - Day 4 - 7:04 / 3:12 for a total of 10:16
 - Day 5 - 8:00 / 6:50 for a total of 14:50
 - Day 6 - 15:10 / overnight
+- Day 7 - about 4:00 / 7:00
